@@ -1,4 +1,4 @@
-<img src="https://github.com/Aakarsh-B/trying-repos/blob/master/Colorful%20Simple%20Science%20Class%20Education%20Presentation.png">
+<img src="https://cdn.awexxx.xyz/files/transparent_flash.png">
 <br/>
 <br/>
 
